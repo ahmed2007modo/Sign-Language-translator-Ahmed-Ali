@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href="https://sign.mt/"><strong>sign.mt</strong></a>
+  <a href="https://AhmedAlisignlanguage.com/"><strong>sign.mt</strong></a>
   <br>
 </p>
 
